@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Hi 👋 I'm happy to bee here because want to 
+share my real life About to my  real story
+ Kung papaano b mabuhay Ang isang Ernie na
+ naging isang Juliana na gaung ...??👋👋 
